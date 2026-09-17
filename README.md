@@ -6,4 +6,4 @@ Me like programming and how it's happening👨🏽‍💻.
 
 🌱 I'm currently learning Unity Engine and Sql
 
-📫 How to reach me: telegram - @P1VanDos
+📫 How to reach me: telegram - @qualitykillomwork
